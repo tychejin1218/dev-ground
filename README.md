@@ -1,4 +1,4 @@
-# AI & Vibe Coding 컨퍼런스 (2025.09)
+# 한빛+ 데브그라운드 2025 with Upstage
 
 ## 컨퍼런스 개요
 
